@@ -1,4 +1,4 @@
 # Ashu
 This is my first respository.
 <br>
-author - Aryan shrivastava
+author - Aryan shrivastava (vellocity wallpaper hub)
